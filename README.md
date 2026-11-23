@@ -2,6 +2,7 @@
 <div align="center">
 
 <img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=800&size=42&pause=600&color=FF4655&center=true&vCenter=true&width=1150&height=140&lines=VALORANT+PRIVATE+HACK+2026;VIP+AIMBOT+%7C+ESP+%7C+RADAR;PREMIUM+FEATURES+%7C+FREE+ACCESS" alt="Valorant Private Hack 2026" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/2529a29a-d59c-47ae-825d-0b10f7608d72" />
 
 <br/>
 
